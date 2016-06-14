@@ -73,3 +73,15 @@ Cari turns 40
 1 week later her family finds her blind and wandering on the road to Camerlyn. 
 6 weeks later Cari begins training a puppy to be her eyes 
 2 months later Cari opens up her own school for weapons training (and assassin training)
+
+## Events
+
+Hook and Inciting Event
+* Open with Cari teaching children the art of the quarterstaff
+* The darkfriends outting themselves and running for the ranch
+* The Children of the Light arrive and out Liam and Petra 
+* Cari kills her friends mercifully while Nalia attacks the Children
+* The Children are killed and their remains disposed of but rumors fly in town
+* The people of Fairhaven run the darkfriends out of the ranch burning everything to the ground
+* Cari is blinded and hurt in the attack on the ranch
+
