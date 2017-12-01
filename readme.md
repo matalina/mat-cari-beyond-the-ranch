@@ -2,23 +2,20 @@
 
 Wheel of Time Fanfic - Orginial Character Centric from Dragonmount Characters
 
-## Cari's Arc
+## Cari'
 
 https://raisingtheherd.wordpress.com/my-writings/age-of-destiny/cari-namere/
 
-The Ranch just outside of Fairhaven is attacked by Children of the Light who were presuing two known darkfriends, while the Children have been dealt with easily the rumors that are left behind cause friction with the denziens of the ranch and the town resulting in flaming pitchfork against the ranch. Cari and her family flee, however everyone going different directions but once a new home has been established Cari's family begins to tricking in and she starts her work again buthe is taken hostage by a marks brother and tortured. Cari manages to escape though she is blinded with no idea of where she is when her family finds her and takes her home to adjust to the new life which is not an easy task leaving Cari feeling useless with a powerful darkness growing inside in the bleakness. The darkness draws upon Cari sending her into a dark place of murder and mayhem to which her family must pull her out of or end her life before she puts them all at risk. When her son is born things change again and Cari finds peace in herself and takes up the mantle of teacher and trainer to the most elite warriors young or old, light or dark.
 
 # Demus Nolorean
 
 http://drpsw.wikia.com/wiki/Demus_Nolorean
 
-The Ranch just outside of Fairhaven is attacked by Children of the Light who were presuing two known darkfriends, while the Children have been dealt with easily the rumors that are left behind cause friction with the denziens of the ranch and the town resulting in flaming pitchfork against the ranch. Demus had asked Cari to leave once already, but she'd refused until things became untenable, Demus stayed and when the ranch went up in flames he fled, taking Kate with him.  Demus and Kat wandered around taking odd jobs, and he continued her training, until they found word of her mother and they went in search of her only to find that she'd disappeared.  They find Cari wandering around down a long road hurt and blinded, Demus tries to tend his friend and lover but with nearly everything with Cari things become dark.  Demus does his best to help Cari through this trying time and is rewarded when his own son seems to curb her dark tendancies allowing their family some peace.
 
 # Yrean Stavrosi-Peiperr
 
 http://drpsw.wikia.com/wiki/Yrean_Stavrosi-Peiperr
 
-Yearn didn't hear about the attack on the ranch until after it had happened but the moment he did he worried after Cari and her family and when he found them safe and sound his first reaction was to protect them which caused strife between him and Cari but when two weeks later she was gone and everything she owned was gone he didn't know where to look for his love.  Instead of being distraught he went out in search of what news he could find he had contacts and she was going to be hanging low, he would find out where she went but not with out a few probles of his own along the way.  Yearn runs into Jeffery Kincaid and uses the boy to help him find his mother, when he finds her location he is surprised to find that she had gone missing.  When Demus returns with Cari he is not only jealous but releived to see her, but his jealously causes more strif between their love triangle and Yearn has a decision to make.
 
 # Jeffery Kincaid Namere
 
